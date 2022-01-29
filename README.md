@@ -1,2 +1,0 @@
-# Contoso
-NISHIKET WADILE
